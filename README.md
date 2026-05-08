@@ -88,4 +88,4 @@ Contact
 
 If you have any questions regarding this Privacy Policy, you may contact:
 
-Email: support@noorapp.dev
+Email: tawseeqmushtaqshah80@gmail.com
